@@ -9,35 +9,34 @@ fontsize: 14pt
 
 ![Tirupathi](Tirupathi.jpg "Thirupathi")
 
-This was the first time I went to Tirupati, the temple town.  
+This was the first time I went to Tirupati, the temple town, that I can remember of.
 
-It was 2:30 am, my mother woke me with a cup of coffee. After that we got ready for the
-journey in the next two hours. Meanwhile, our grandparents were ready 
-before us. My grandfather is well known in the family for his briskness especially to go on a trip like this.  
-My mother and grandmother had prepared lunch and breakfast. It was _upma_ for
-breakfast and _puliogare_ for lunch.
+It was 2:30 am, my mother woke me with a cup of coffee and we were getting prepared for the travel. 
+Meanwhile, our grandparents were ready  before us. This was expected as my grandfather is well known in the family for his briskness especially to go on a trip like this.  
+My mother and grandmother had prepared lunch and breakfast. It was _Upma_ for
+breakfast and _Puliogare_ for lunch.
 
-We left for the bus stand in about 4:45 am, with my father, who dropped us.
+We left for the bus stand at about 4:45 am. My _appa_ and _chithappa_, dropped us.
 The streets were deserted except for some people and cycles roaming on the
-road. Stray dogs were howling here and there. But when we reached the
+road. Stray dogs were howling. But when we reached the
 mainroad, there were some trucks and busses moving and honking around.
 
-The bus arrived after 10 minutes, at 4:55.
+The bus arrived after 10 minutes, at 4:55 am.
 We boarded the bus by five. I and my sister found our seats in the front
 quickly. My mother and grandparents were back of us. 
 
-A lady draped in yellow coloured sari and a little aged, urged my mother move front quickly. Even though
-my mother kept on moving and there was no rush, she was pushing hardly against my mother. My mother
+At that instance, a lady draped in yellow coloured sari and a little aged, urged my mother move front quickly. Even though
+my mother kept on moving and there was no rush, she was pushing hard against my mother. My mother
 could feel some  movement in her handbag. She finally lost her patience and screamed at the lady to go first. The lady left
-my mother the way and got down the bus and ran away, which was surprising. My mother settled and
+my mother her way, she got down and walked away. Which was surprising. My mother settled and
 checked her bag. She was right. _The lady had tried to steal stuff from her
 bag! Thank goodness, my mother's glasses had protected her things._ In a later point of day
 we realised that pack of chocolates were gone.
 
-We were lucky enough to find a seats in the front itself. The bus started in about five minutes.
-In the first one hour I was awake in the bus. I was looking out of the window, the world was dark blue colour. 
+The bus started in about five minutes. For the first one hour I was awake in the bus. 
+I was looking out of the window, the world was dark blue colour. 
 The trees, plants and buildings made dark patches in the dark blue sky. The air was gushing through the windows.
-The feelings was so nice. After enjoying this for a while, eventually I fell asleep.
+The feeling was so nice. After enjoying this for a while, eventually I fell asleep.
 
 The bus stopped at main stops, like _Mulbagal, Chittor, Kolar, Palmaner._ I
 had slept nicely till the bus stopped for a break at Mulbagal. We had our
@@ -50,7 +49,7 @@ turns. Now the sky was light blue.
 I was sitting with my grandfather. He was advising me to observe everything on the road, especially the green boards
 with distances for destinations on it. 
 
-We reached at _Tirupati_ at about 10:30. The first place we visited was _Tiruchanur_ the
+We reached at _Tirupati_ at about 10:30 am. The first place we visited was _Tiruchanur_ the
 place where the temple of Lakshmi,  _Sri Venkateshvara Swamy's wife,_ exists. The temple
 is named as _Alamelu Mangapuram._ 
 
@@ -59,32 +58,31 @@ devices and foot wares outside the temple. There were many old people selling ma
 cotton candies, toy guns, fruits and sacred items. 
 
 After submitting the foot wares and and phones outside the temple, we headed to
-the main gate, but that was not an easy job. There were multiple queues leading to
-the main gate. They were of three types of them : two special, that is, paid
-queues, and a free queue. 
+the main entrance, but that was not an easy job. There were multiple queues leading to it. 
+They were of three types of them : two special, that is, paid queues, and a free queue. 
 
-We at first thought that everything were same, but it was not. The guy at the
+We at first thought that every queue was the same, but it was not. The guy at the
 special queue stopped us and told us to go to the other queue. My grandfather
 asked the reason, to that the guy replied that we were supposed to take the
 ticket before itself. My grandfather thanked him and told _"Never mind,"_
-and continued moving.
+and continued moving to the free one.
 
 The crowd was irresistible. There were more than 250 people present. The
 people had no patience at all. I felt like I was squashed like a fruit between
 them.
 
-The queue led us directly from the main entrance, called _gopuram,_ till the
-main sacred sanctum. I couldn't even see the goddess properly! I just had a
+The queue led us directly from the main entrance, to the sacred sanctum. 
+I couldn't even see the _Goddess_ properly! I just had a
 glance at her. The people behind me didn't give me enough time to properly
 look at her.
 
-After seeing the goddess we took a round of the temple. There were many small
+After seeing the her we took a round of the temple. There were many small
 reliefs on the walls of the temple, but we had no time to even gaze at them.
 There were two reasons  for this, that is,
 
 1. People were rushing and pushing,
 	
-2. We only had little time to spend there. We had to go the _Tirumala_ temple by two.
+2. We only had little time to spend there. We had to go the _Tirumala_ by two.
 
 After collecting our things, we went to the bus stand. 
 
@@ -101,15 +99,15 @@ station.
 Here they check the whole bus, passengers and their luggages. We got
 down the bus and walked to the metal detector. There were two ways. One for
 gents and other for ladies. There were men and women before the machines for
-checking our body. We had to leave our luggage in the conveyor belt, which led
-to the scanner. This made things easy for the people to check!
+scanning the body. We had to leave our luggage in the conveyor belt, which led
+to the x-ray scanner. 
 
 _What a proper checking system!_
 
-After all that checking, we boarded the bus again. The buss started off. For
-the first one kilometre we travelled on road. After that we began climbing the hills.
+After all that checking, we boarded the bus again and it started off. For
+the first one kilometre we travelled on level road. After that we began climbing the hills.
 The roads on the hills was perfectly made. Smooth surface. It was covered with
-trees and flowers on both sides. It was filled with steep and deep curves.
+trees with flowers on both sides. It was filled with steep and deep curves.
 
 After going a little up, the beautiful flowers began to decrease. It began
 more and more mountainous. At certain points the trees on the left side of
@@ -131,7 +129,7 @@ to leave us at the _special darshan._ It was pre-booked, by my uncle, costing
 Rs.300 per head. 
 
 When then reached the checking centre, where they check our
-_Aadhars_, our identification numbers. When the guy there informed us that we must
+_Aadhar_ card, our identification numbers. When the guy there informed us that we must
 only wear only _veshti_ to the temple, not pants, we were very frustrated. Then I
 remembred some people selling _veshtis_ in the front. I had wondered why they
 were doing so. Now I got the reason! 
@@ -156,7 +154,7 @@ darshan,_ there was so much crowd in it too! That too on a Monday! My mother
 informed that we were lucky on that day because as the godowns were closed,
 much time was saved.
 
-After 5 passages of the same identical looks, we reached the main gopuram. I
+After 5 passages of identical looks, we reached the main gopuram. I
 thought that it was a good time for us beacause we reached the gopuram in 35
 minutes of time. My mother explained to me that this was good because otherwise we
 had to be waiting for like one and a half hour there! After entering into the
@@ -172,7 +170,7 @@ harder.
 
 A lady, in particular nearly pushed me off. I felt very
 bad about the people present there. I did not take good look at the god, for the push behind
-me was irresistible. My sister being only 6 years old couldn't
+me was irresistible. My sister being young couldn't
 see the image of the god properly. So, my mother lifted her up for her to see. 
 But the lady at the entrance told that _you must not lift kids up._ 
 
@@ -236,9 +234,9 @@ At these points, my grandmother, who was sitting next to me, would nearly
 slide off her seat!
 
 One the way, we saw many Conservation of Animals boards. Animals like 
-deer, lions, tigers were there. But we didn't go inside and take a look.
+deer, lions, tigers were mentioned. But we didn't go inside and take a look.
 
-When we reached our destination, we had a small tiffin there and started
+When we reached our destination, we had a light tiffin there and started
 looking for a bus. At first, no bus was in sight. After waiting like 20
 minutes, we finally found a bus that was travelling to Bangalore, and boarded it by seven. But this
 time, we were in the middle seats. 
